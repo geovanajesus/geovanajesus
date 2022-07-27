@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @geovanajesus
-- 👀 I’m interested in  TII e Odontologia  
+- 👀 I’m interested in Fotografia  
 - 🌱 I’m currently learning  TI
 - 📫 How to reach me  pelo meu e-mail geovanamolinna@gmail.com
 - 💚 Tenho 16 anos.
